@@ -1,2 +1,1 @@
-
-### 💬 JOIN DISCORD / PRICES : [HEX COMMUNITY](https://discord.gg/v2sGDG5RcF)
+### 📌・ DISCORD : [HEX PROJECT](https://discord.gg/S2NxQRvsvn)  
