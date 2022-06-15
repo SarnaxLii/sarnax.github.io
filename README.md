@@ -1,1 +1,1 @@
-### 📌・ DISCORD : [HEX PROJECT](https://discord.gg/S2NxQRvsvn)  
+### 📌・ DISCORD : [HEX PROJECT](https://discord.gg/fYnQePhkt7)
